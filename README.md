@@ -1,3 +1,3 @@
 ✨ These are opensource contributions by SaF IT Services SRL.
 
-📫 Send email to safits at safits.be
+📫 If you need to reach us, send email to safits at safits.be.
